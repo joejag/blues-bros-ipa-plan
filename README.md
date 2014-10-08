@@ -1,3 +1,12 @@
+The plan
+========
+
+* Dress up as Blues Bros
+* Buy every single different type of bottle of IPA (or US pale ale) beer in Glasgow
+* Bring beer back to home
+* Sell tickets to an event where we drink the beer (£20, 100% goes to charity)
+* Ticket buyers then drink all the beer that we buy as a reward
+
 Places to hit
 =============
 
